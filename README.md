@@ -1,4 +1,4 @@
-21 years old, student in video games, passionate about everything but first of all about pop culture. 🎞
+22 years old, student in video games, passionate about everything but first of all about pop culture. 🎞
 
 Young ambitious programmer mastering in particular C# and C++, I enjoy developing small games personally or during gamejams. 💻
 
